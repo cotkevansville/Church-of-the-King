@@ -1,3 +1,3 @@
 ## This is now the title
 
-Here is some text.
+[Sign up] (http://eepurl.com/gUfxbj) for our newsletter to hear more about the Church of the King!
